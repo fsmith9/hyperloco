@@ -1,4 +1,4 @@
-# This is **Hyperloco**
+# This is **Hyperloco 2.0**
 
 The only place where you could find these text files and not be sued by me, because, *I'm that cool.*
 
