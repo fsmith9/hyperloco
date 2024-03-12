@@ -1,2 +1,9 @@
-# hyperloco
-Testeando cursos de Platzi
+# This is **Hyperloco**
+
+The only place where you could find these text files and not be sued by me, because, *I'm that cool.*
+
+**If you like what you see, don't hesitate to drop me a like and 20 bucks on my Nequi account.**
+
+> ¿Still dubious? Here's a picture of anime morena: 
+
+![yeah baby](https://m.media-amazon.com/images/I/61Ozm5zQhpL._AC_SL1500_.jpg "yeah baby")
